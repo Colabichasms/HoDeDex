@@ -1,1 +1,2 @@
-# HoDeDex
+# HoDeDex Is a human studio (@Colabichas) (@HoDeDex) in telegram, producing utilities and games, a well-known project: Ticket404 (Where we work in telegram support and solve problems), you can download the official utility in the telegram channel @HoDeDex
+HoDeDex #Colabichas #HoDeDex #ХоДеДекс #Информация
